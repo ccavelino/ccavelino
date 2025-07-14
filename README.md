@@ -1,4 +1,4 @@
-![alt text] (https://github.com/ccavelino/ccavelino/issues/1#issue-3224791827)
+
 ## Hey 👋, I'm Camila  
 
 
